@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Jordan-007-code
+- 👀 I’m interested in Chess and Brazilian Jiu Jitsu
+- 🌱 I’m currently learning as much as I can
+- 📫 How to reach me: deuel.ellan@gmail.com
